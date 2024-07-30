@@ -5,8 +5,8 @@ This prohect took a lot of time. When I say a lot, it mean a lot. Nothing too co
 
 
 
-For more information about the project you can contact Muneeb at muneeb123karim@gmail.com or the Professor Tahir Iqbal at ...
+For more information about the project you can contact Muneeb at muneeb123karim@gmail.com or, Professor Tahir Iqbal at ... . <br>
 
 
-Image Gallery: Coming soon
+Image Gallery: Coming soon <br>
 Article: Coming Soon
