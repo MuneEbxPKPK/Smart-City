@@ -9,4 +9,5 @@ For more information about the project you can contact Muneeb at muneeb123karim@
 
 
 Image Gallery: <a href="https://mega.nz/folder/9NQFnLRA#2EGFezg7hKZYjzW8xVjetA">Click Here</a> <br>
+Document Link: <a href="https://mega.nz/file/IcJSEL4R#1Tb_M5Lb2_2OiiCKLsgD73hzUh3nds7thdDqicmgc0U">Click Here</a> <br>
 Article: Coming Soon
